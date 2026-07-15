@@ -1,0 +1,1 @@
+Cara Menghubungi CS KrediOne: Hubungi call center resmi KrediOne (0855) 7996888 atau CS KrediOne (0851) 42368220 dan melalui email cs@kredione.id. layanan customer service KrediOne dapat dihubungi Senin-Minggu pukul 08:00-23:00 WIB.
